@@ -1,1 +1,1 @@
-Engineering Analytics. Peep my work at https://v-chi.rodeo/
+Engineering Analytics. Peep my work at [v-chi.rodeo](https://v-chi.rodeo) 🤠
